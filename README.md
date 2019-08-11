@@ -2,4 +2,4 @@
 just another repository
 
 hey I'm yael
-just getting started on all these progremming stuff. really cluless at this point. 
+just getting started on all these programming stuff. really clueless at this point. 
